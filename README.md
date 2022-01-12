@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @refoiled
+- 👀 I’m interested in making educational tools for discord and other media services.
+- 📫 How to reach me add me on discord refoiled#4713 or join my discord server https://discord.gg/kUkGVGUHU6
